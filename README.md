@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @BunzieJumper
 - 👀 I’m interested in gaming :)
-- 🌱 I’m currently trying to learn coding and cryptocurrncy
+- 🌱 I’m currently trying to learn coding and cryptocurrency
 - 📫 How to reach me discord: Bunzie#3647
